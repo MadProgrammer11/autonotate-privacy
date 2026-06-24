@@ -55,4 +55,4 @@ If this privacy policy changes in the future, the updated policy will be posted 
 If you have any questions about this privacy policy, please contact:
 
 **Vincent McGinnis**
-**mcginnis1111@yahoo.com**
+**madprogrammer11@gmail.com**
